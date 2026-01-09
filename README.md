@@ -1,4 +1,4 @@
-## Hi there 👋
+## Me quero morir lol xD
 
 <!--
 **Stroper-Flame/Stroper-Flame** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
